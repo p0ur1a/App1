@@ -1,1 +1,1 @@
-# this is the fuckin million dollar project BITHCHES!!!!
+# the message
